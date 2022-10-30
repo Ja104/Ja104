@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Ja104
+- 👀 I’m interested in not dying
+- 🌱 I’m currently learning programing
+- 💞️ I’m looking to collaborate on survival
+- 📫 How to reach me don't do it
